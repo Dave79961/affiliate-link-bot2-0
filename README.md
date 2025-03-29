@@ -1,0 +1,1 @@
+# affiliate-link-bot2-0
